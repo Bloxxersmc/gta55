@@ -1,1 +1,1 @@
-[# gta55](https://opm5a92.bagatz.com/)
+(https://opmgta5.bclib.org/)
